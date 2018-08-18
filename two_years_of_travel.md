@@ -1,15 +1,26 @@
+## Two Years of Travel
+
 I've been reading too much
+
 Bukowski
+
 
 Now everything's poetry:
 
+
 Dogs
+
 Dogs shitting
+
 Dogs barking
 
+
 People
+
 People shitting
+
 With mouth and anus
+
 
 I camp on a Croatian island with two German
 	boys.  They ask me if I 
