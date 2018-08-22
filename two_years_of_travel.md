@@ -28,7 +28,7 @@ I conquer the second.
 
 My feet lead me  
 Through brush and bramble  
-THrough the backyard of lovemakers  
+Through the backyard of lovemakers  
 Choking each other out  
 Scaring the crows  
 And me.  
