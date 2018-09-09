@@ -1,26 +1,32 @@
 ##Farewell
 
 Alabster funeral:  
-The impending grey of age.  
-I, devoid  
-Of hue and color,  
-Doff my cap to the demure,  
-Old Polish woman frocked in nothing.  
+Imprisoned in the casket while  
+Cortegé tramples on the soil above.    
 
-Eagles bellow beneath falling acorns.  
-Soundless noises.  
-School children march in cadence  
-To the roaring blizzard;  
+In darkness I hear whispered  
+Screams so close the warmth of a  
+Wet tongue trickles down my spine  
+Like sharp swords that bounce off steel walls
+And lacerate my guts.  
 
-A choir of coal. Ash  
-Is all that reamains,  
-Residue of time once was.  
+DIE, DIE, DIE  
+they chant,  
+KILL, KILL, KILL  
+they plead  
 
-Hope glimmers on the  
-Scales of trout, but vanishes  
-By night's reach.  
+And I strangle them all slow  
+And methodical like a  
+Chemist pouring liquid in  
+To a new flask, a new life.  
 
-What is lost never ceases.  
-This feeling:  
+Eagles bellow beneath falling acorns;  
+Silence shrouds the noise; a cork seals a bottle;  
+Writhing like a worm in the desert,  
+I accept the cosmos for what they are:  
 
-...  
+Devoid of soul,  
+A void of winter,  
+Except for the summer solstice  
+When that old, familiar voice returns  
+And everything is alright.  
