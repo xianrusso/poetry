@@ -7,7 +7,7 @@ Cortegé tramples on the soil above.
 In darkness I hear whispered  
 Screams so close the warmth of a  
 Wet tongue trickles down my spine  
-Like sharp swords that bounce off steel walls
+Like sharp swords that bounce off steel walls  
 And lacerate my guts.  
 
 DIE, DIE, DIE  
